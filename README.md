@@ -22,4 +22,4 @@
 Linkedin - https://www.linkedin.com/in/lerato-motaung-b4a7022a8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
  
  
-Portfolio Website -
+Portfolio Website -https://pearl925.github.io/My-Portfolio.github.io/
